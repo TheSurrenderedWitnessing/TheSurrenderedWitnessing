@@ -10,3 +10,6 @@
 <p align="center">
  <img src="https://files.catbox.moe/pd2l73.png" data-canonical-src="(https://files.catbox.moe/pd2l73.png)"
 </p>
+
+<p align="center">
+⠀⠀⠀ <img src="https://files.catbox.moe/itqbik.png" data-canonical-src="(https://files.catbox.moe/itqbik.png)"width="350">  <img src="https://files.catbox.moe/cwn29s.png" data-canonical-src="(https://files.catbox.moe/cwn29s.png)"width="350">
