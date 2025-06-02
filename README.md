@@ -36,7 +36,7 @@
 
 <p align="center">
  LOVEMAIL <br/>
- Don, Halo, Eli, Yue, Snom, Kay, Aseah, Kane, Wisp, and all my unlisted friends!! ily all!! <br/>
+ Don, Kiwi, Halo, Eli, Yue, Snom, Kay, Aseah, Kane, Wisp, and all my unlisted friends!! ily all!! <br/>
   </p>
 
   <p align="center">
