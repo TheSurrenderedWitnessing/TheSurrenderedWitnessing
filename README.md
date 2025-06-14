@@ -23,10 +23,10 @@
 </p>
 
 <p align="center">
- My name's Joker or Emil! Im 16, Agender and go by any pronouns <br/>
+ My name's Joker or Emil! Im Agender and go by any pronouns <br/>
  Autism + Social anxiety, 16 y/o, I can be awkward at first <br/>
  I LOVE PROJECT MOON!! int w me if u do too!! I love making friends :D <br/>
-`I like to play and draw :3 <br/>
+I like to play and draw :3 <br/>
  Project Moon, Persona, Enstars, ONS enthusaist <br/>
   </p>
 
@@ -36,7 +36,7 @@
 
 <p align="center">
  LOVEMAIL <br/>
- Don, Kiwi, Halo, Eli, Yue, Snom, Kay, Aseah, Kane, Wisp, and all my unlisted friends!! ily all!! <br/>
+ Don, Kiwi, Halo, Eli, Yue, Snom, Kay, Aseah, Kane, and all my unlisted friends!! ily all!! <br/>
   </p>
 
   <p align="center">
